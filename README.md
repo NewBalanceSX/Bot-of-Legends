@@ -1,3 +1,3 @@
 # Bot-of-Legends
 Bot of Legends SX
-Maintance by IMPRESIVE
+Maintance by IMPRESIVΞ
